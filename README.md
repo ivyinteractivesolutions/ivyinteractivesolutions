@@ -1,0 +1,1 @@
+Ivy Interactive, is a leading developer of Mobile Applications, Websites, Ad Campaigns, 3D Graphics and Video production using the latest technology and innovative techniques. We have successfully delivered projects to some of the major global brands across numerous sectors. We work closely with our cliental, offering full support and ensure a complete client satisfaction.
